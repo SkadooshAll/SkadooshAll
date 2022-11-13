@@ -14,7 +14,7 @@ I am passionate about the challenge of using my technology, sales, customer succ
 
 - father of three 👧🏻 👧🏻 👧🏻
 - tennis, footvolley and beach volleyball amateur player 🎾 ⚽️ 🏐
-- who wants to have a healthy life 🍲 🎼 🧘🏻 🎮 🐶
+- who wants to have a healthy life 🍲 🎼 🧘🏻 🎮 🐶 💞
 - the most curious person I know 🧩
 - unstoppable fighter 📈 
 
