@@ -10,7 +10,7 @@ I am passionate about the challenge of using my technology, sales, customer succ
 - 🗣️ English, Spanish and Portuguese
 
 
-### Living as... 
+### Living as ... 
 
 - father of three 👧🏻 👧🏻 👧🏻
 - tennis, footvolley and beach volleyball amateur player 🎾 ⚽️ 🏐
@@ -20,7 +20,7 @@ I am passionate about the challenge of using my technology, sales, customer succ
 
 ---
 
-### To more
+### Be in touch !
 
 <div>
   <a href="https://www.linkedin.com/in/marciososie/"><img src="https://img.shields.io/badge/-LinkedIn-%230077B5?style=for-the-badge&logo=linkedin&logoColor=white" target="_blank"></a>
