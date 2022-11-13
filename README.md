@@ -5,7 +5,7 @@ I am passionate about the challenge of using my technology, sales, customer succ
 - 📚 Licentiate degree - Mathematics and Computer Science
 - 📚 Nearly Bachelor of Business Administration
 - 📚 Postgraduate courses: Cloud Computing and Marketing + Advertising Communication
-- 📚 Technical course in Electronics by loved [Liceu de Artes e Ofícios de São Paulo](https://www.liceuescola.com.br/)
+- 📚 Technical course in Electronics by loved [Liceu de Artes e Ofícios de São Paulo](https://www.liceuescola.com.br/) school
 - 📚 Life Long Learner
 - 🗣️ English, Spanish and Portuguese
 
