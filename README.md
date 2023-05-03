@@ -1,7 +1,7 @@
 ## Welcome to my profile 
 I am passionate about the challenge of using my technology, sales, customer success and marketing skills to help companies achieve their goals through innovation. Entrepreneur of profitable operations, for +20 years understanding and converting information technology into value and purpose
 
-- 🤵🏻‍♂️ LatAm Channel Manager at [GitHub](https://github.com/enterprise) | Enterprise Products and Services
+- 🤵🏻‍♂️ Partner Development Manager at [GitHub](https://github.com/enterprise) | Enterprise Products and Services
 - 🇧🇷 Based in Brasil
 - 📚 Licentiate degree - Mathematics and Computer Science
 - 📚 Nearly Bachelor of Business Administration
