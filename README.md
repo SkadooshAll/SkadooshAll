@@ -4,7 +4,7 @@ I am passionate about the challenge of using my technology, sales, customer succ
 - 🤵🏻‍♂️ LatAm Partner Development Manager at [GitHub](https://github.com/enterprise) | Enterprise Products and Services
 - 🇧🇷 Based in Brasil
 - 📚 Licentiate degree - Mathematics and Computer Science
-- 📚 Nearly Bachelor of Business Administration
+- 📚 Bachelor of Business Administration
 - 📚 Postgraduate courses: Cloud Computing, Marketing + Advertising Communication
 - 📚 Technical course in Electronics by loved [Liceu de Artes e Ofícios de São Paulo](https://www.liceuescola.com.br/) school
 - 📚 Lifelong Learner
